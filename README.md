@@ -1,6 +1,6 @@
 # 区块链
 
-[李笑来](http://lixiaolai.com)（著）&copy; 2019
+[夏高杰](http://xiagaojie.com)（著）&copy; 2019
 
 -----
 
